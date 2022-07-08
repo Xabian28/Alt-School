@@ -1,1 +1,1 @@
-# Alt-School
+# Alt-School Africa
